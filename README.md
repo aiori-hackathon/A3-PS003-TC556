@@ -8,7 +8,7 @@
 
 ## Team Introduction Video
 
-YouTube: https://www.youtube.com/watch?v=YOUR_VIDEO_ID [cite: 2]
+YouTube: https://youtu.be/hNjyCSEBqoY [cite: 2]
 
 ---
 
